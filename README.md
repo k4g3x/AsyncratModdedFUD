@@ -6,8 +6,7 @@
 DISCORD : 𝙠 𝙖 𝙜 𝙚#1111
 
 TELEGRAM : https://t.me/kage_1111
-# DOWNLOAD
-https://github.com/k4g3x/AsyncratModdedFUD/releases
+
 # FULL YOUTUBE VIDEO
 https://www.youtube.com/watch?v=riBh-p8GDus
 # STILL RUNTIME FUD ON 11.11.2021
